@@ -1,0 +1,1 @@
+# Strukturdata2022
